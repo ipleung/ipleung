@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @finnisherthefin
+- 👋 Hi, I’m @ipleung
 - 👀 I’m interested in old computers
 - 🌱 I’m currently learning the basics
 - 💞️ I’m looking to collaborate on you giving me help
